@@ -1,0 +1,1 @@
+I, Nayeel Imtiaz, have read and understood the Fall CSE12 syllabus and Personal Responsibility Document. naimtiaz 6 October 2020
